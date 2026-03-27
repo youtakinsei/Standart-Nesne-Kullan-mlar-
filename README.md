@@ -1,0 +1,1 @@
+# Standart-Nesne-Kullan-mlar-
